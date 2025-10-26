@@ -2,7 +2,7 @@
 
 **`Desenvolvedora FullStack`**
 
-Me chamo Joelson de Almeida , tenho 27 anos e sou Natual de Luanda, Angola .  Sou apaixonado por tecnologia 
+ 
 
 <p align="left">
     <a href="https://www.youtube.com/@larissakich?sub_confirmation=1">
